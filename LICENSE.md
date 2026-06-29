@@ -1,4 +1,4 @@
-# 
+# one tap Script no-ban offers the most advanced one tap Script, with infinite resources and unlimited stamina. Perfect for dominating any match.
 
 
 
